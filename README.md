@@ -1,1 +1,3 @@
-# XN_revista
+# Generación Ñu
+
+Colaboraciones en la revista
