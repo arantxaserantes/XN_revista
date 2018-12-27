@@ -2,7 +2,9 @@
 
 [Introducción: Audio de la autora](https://ia601503.us.archive.org/6/items/Xeracinu03Generacinu03/IntroRelato.mp3)
 
-![Muse](https://img.youtube.com/vi/U23G0hGEUsU/0.jpg)(https://www.youtube.com/watch?v=U23G0hGEUsU)
+![Muse](https://img.youtube.com/vi/U23G0hGEUsU/0.jpg)
+
+(https://www.youtube.com/watch?v=U23G0hGEUsU)
 
 Lo último que se pudo reproducir en aquel ordenador fue la pista *The dark side (alternative reality version)*. Parecía una canción desesperada o tal vez fuese un enigma que pasaba desapercibido a los ojos de los investigadores que estábamos allí, tratando de esclarecer su muerte. Cuando se registró el laboratorio, se quisieron hallar pruebas de la existencia del programa Musa 5.0 entre los papeles y visualizaciones que todavía quedaban esparcidos por el escritorio. ¿Qué o quién había detrás de aquel nombre?¿Fue lo que consumió su vida o la ganó para ella?
 
